@@ -1,0 +1,4 @@
+-  Hi, I’m @iRightall
+-  I’m interested in games
+-  Pronouns: she/her
+-  Fun fact: 
